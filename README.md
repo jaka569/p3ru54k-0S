@@ -1,1 +1,2 @@
-# p3ru54k-0S
+# perusak
+Destroying victims phone by using number telephone
